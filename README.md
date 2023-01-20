@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DeHarryPotter
 - 👀 I’m interested in a better world 
 - 🌱 I’m currently learning everything
-- 💞️ I’m looking to collaborate on word changing
+- 💞️ I’m looking to collaborate on world changing
 - 📫 How to reach me pm me
 
 <!---
